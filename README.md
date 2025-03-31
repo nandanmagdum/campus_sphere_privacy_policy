@@ -1,0 +1,1 @@
+# gcek_smart_campus_privacy_policy
