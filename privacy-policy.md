@@ -2,9 +2,9 @@
 **Last update:** 31 March, 2025  
 
 ### Introduction  
-Our privacy policy will help you understand what information we collect at GCEK Smart Campus, how GCEK Smart Campus uses it, and what choices you have.  
+Our privacy policy will help you understand what information we collect at Campus Sphere, how Campus Sphere uses it, and what choices you have.  
 
-GCEK Smart Campus built the GCEK Smart Campus app as a free app. This SERVICE is provided by GCEK Smart Campus at no cost and is intended for use as is.  
+Campus Sphere built the Campus Sphere app as a free app. This SERVICE is provided by Campus Sphere at no cost and is intended for use as is.  
 
 If you choose to use our Service, then you agree to the collection and use of information in relation with this policy. The Personal Information that we collect is used for providing and improving the Service. We will not use or share your information with anyone except as described in this Privacy Policy.  
 
