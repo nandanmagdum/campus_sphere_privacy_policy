@@ -1,5 +1,5 @@
 ### Privacy Policy  
-**Last update:** 31 March, 2025  
+**Last update:** 4th April, 2025  
 
 ### Introduction  
 Our privacy policy will help you understand what information we collect at Campus Sphere, how Campus Sphere uses it, and what choices you have.  
